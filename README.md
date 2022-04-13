@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @AurianeGillet
+- 👀 I’m interested in learning new things but it is all still very secret to me 
+- 🌱 I’m currently learning everything I can 
